@@ -1,1 +1,1 @@
-UAS Pengolahan Citra
+M. Dimas Prayoga_UAS Pengolahan Citra
